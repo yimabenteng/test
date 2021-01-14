@@ -1,4 +1,4 @@
-<h1>A系列</h1>
+<h1>R系列百度云广播剧</h1>
 按剧名的首字母排列
 
 -----
@@ -19,21 +19,26 @@
 
 ------
 
->A-AWM绝地求生.广播剧
-链接：https://pan.baidu.com/s/1vy9gnZUZ2V3GpkLWyXt9WQ
+>R-入睡指N.广播剧+小说
+链接：https://pan.baidu.com/s/1RbdrmEt0JmfZxTZDoZuRkQ
+提取码：7vmy 
  
->A-爱的baobao.广播剧
-链接：https://pan.baidu.com/s/1xvFFZj66CMmFjvTD-TJCuA
+>R-热搜预定.广播剧
+链接：https://pan.baidu.com/s/1T8UtLGGECt04CeqbPISWpg
  
+>R-入骨相思知不知.广播剧（全五期）
+链接：https://pan.baidu.com/s/1ar1bAW50GnFnuL8z8vBEYQ
+提取码：9525
  
->A-爱夜.广播剧
-链接：https://pan.baidu.com/s/1PLz_aO6CHCOCtWiDFN6S2A
+>R-人渣反派自救系统.广播剧+小说
+链接：	https://pan.baidu.com/s/1v>P-FEUQ>P-NjQgnOSFFbQzg
  
+>R-戎先生的失恋日记.广播剧
+链接：https://pan.baidu.com/s/1uE_lgRenexx0CU_LyBf2JA
  
->A-暗界神使.广播剧+有声剧
-链接：https://pan.baidu.com/s/1M2UerIFu1UidPddcw0CwQQ
- 
- >A-暗香枕菩提.完结（向昱华&姜涛）
-链接：https://pan.baidu.com/s/1ovg3MUr-KfT2Au06HFAUbg
+>R-如果月亮不抱你.广播剧
+链接：	https://pan.baidu.com/s/14Ud>G--rZzg4e3XLMGyhzmA
+
+
 
 

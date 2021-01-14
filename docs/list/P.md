@@ -1,4 +1,4 @@
-<h1>A系列</h1>
+<h1>P系列百度云广播剧</h1>
 按剧名的首字母排列
 
 -----
@@ -19,21 +19,31 @@
 
 ------
 
->A-AWM绝地求生.广播剧
-链接：https://pan.baidu.com/s/1vy9gnZUZ2V3GpkLWyXt9WQ
+>P-PUBG世纪网恋（柒夜x倒霉死勒）
+链接：https://pan.baidu.com/s/1L933uVV4KU-A7WIWseW7Nw
  
->A-爱的baobao.广播剧
-链接：https://pan.baidu.com/s/1xvFFZj66CMmFjvTD-TJCuA
+>P-漂白的爱情.广播剧（魅影之声&阿尔冯斯）
+>>>>正式网盘群更新，请加群获取
  
+>P-漂亮朋友.广播剧
+链接：https://pan.baidu.com/s/1eFF_fUozL2Sla5kY-9OIfQ
  
->A-爱夜.广播剧
-链接：https://pan.baidu.com/s/1PLz_aO6CHCOCtWiDFN6S2A
+>P-陪-床-难戒.广播剧+小说
+链接：https://pan.baidu.com/s/1RniswIglq1Tp_blFvfUMZg
  
+>P-陪酒.纯爱广播剧（小苒x粽子）
+链接：https://pan.baidu.com/s/1FAkfeSaHQVR-n4cZgpJ-nA
  
->A-暗界神使.广播剧+有声剧
-链接：https://pan.baidu.com/s/1M2UerIFu1UidPddcw0CwQQ
+>P-破云.广播剧+小说
+链接：https://pan.baidu.com/s/1Yp3GWTETUH9A037fLmv6yg
+提取码：9525 
  
- >A-暗香枕菩提.完结（向昱华&姜涛）
-链接：https://pan.baidu.com/s/1ovg3MUr-KfT2Au06HFAUbg
+链接2：https://pan.baidu.com/s/1_RheYfiI_DlRrjAUnYJ_Ig
+ 
+>P-普通市民历险记.广播剧
+链接：https://pan.baidu.com/s/1-rz_FkE_gYj2wVWc7q-3CA
+提取码：9525
+ 
+
 
 
