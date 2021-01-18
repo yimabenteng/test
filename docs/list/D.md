@@ -33,7 +33,7 @@
 提取码：9525
  
 >D-弹幕君.广播剧.全一期（三三＆百醇）
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1smPMjffELnrPZATIFre5lQ
  
 >D-大唐更漏长.广播剧
 链接：https://pan.baidu.com/s/1omCCS3G1yWxBavI5q672yA
@@ -44,7 +44,7 @@
 提取码：9525
  
 >D-当年万里觅封侯.广播剧+小说
-链接：https://pan.baidu.com/s/16O4u2x0lRE1a-_gdpzQ61w
+链接：https://pan.baidu.com/s/1b5HVBs4huRZ4SrOFXdKcww
 提取码：9525 
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
@@ -58,14 +58,14 @@
 链接：https://pan.baidu.com/s/15rTNWlLfkNWrIYSLvN8wpw
  
 >D-等待花开（擎苍x红日）全一期
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1HtiXyZep4pvczwfNSxMWTQ
  
 >D-地尽头.现代纯爱广播剧（擎苍&超级柴政）
 链接：https://pan.baidu.com/s/1-7hvFIF2JpcHxns4_BhurA
 提取码：9525
  
 >D-电车里的日日夜夜.广播剧.全一期
-链接：https://pan.baidu.com/s/1_nQnrfcMKMzzwVB1cMrlRA
+链接：https://pan.baidu.com/s/1nNgvpIoYYI-myvQG6EFcuw
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >D-电子竞技存在一见钟情吗.广播剧

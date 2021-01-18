@@ -20,10 +20,10 @@
 ------
 
 >P-PUBG世纪网恋（柒夜x倒霉死勒）
-链接：https://pan.baidu.com/s/1L933uVV4KU-A7WIWseW7Nw
- 
+链接：https://pan.baidu.com/s/1jtgWnBQyYSaJIeOy63vDPA
+
 >P-漂白的爱情.广播剧（魅影之声&阿尔冯斯）
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1tk0NdxzrbIzWxY4Ntk7d-g
  
 >P-漂亮朋友.广播剧
 链接：https://pan.baidu.com/s/1eFF_fUozL2Sla5kY-9OIfQ

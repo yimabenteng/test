@@ -20,27 +20,25 @@
 ------
 
 >Z-这是我对象，结婚的那种.广播剧（夙七烈x温溪）全一期
-链接：https://pan.baidu.com/s/1AESgqnPTOFtIgCGip6J2xg
- 
+链接：https://pan.baidu.com/s/1lWxkTxeRg06ad6SkpPv5LQ
+
 >Z-这题超纲了
-链接：https://pan.baidu.com/s/1avyQaE7ViL_LJC_mqTVQpQ
- 
+链接：https://pan.baidu.com/s/1khNB64d8DXWZCufO4v_zWA
+
 >Z-针锋对决.广播剧（多版本）+小说
-链接：https://pan.baidu.com/s/1j_>M-TLmUTmtwFmt0oF7uEQ
+链接：https://pan.baidu.com/s/1QyOkrspIMTlWNd4yLE0edg
 提取码：9525 
  
  
 >Z-真爱透视中.广播剧
-链接：https://pan.baidu.com/s/1iI_dfQwFz5nfvlB4Or3_Bg
-提取码：9525
-备用链接：https://pan.baidu.com/s/1zt3zweQX7vI78SYa1Yx3Cw
- 
+链接：https://pan.baidu.com/s/1S5rasie_zXRWT_N9di-paw
+
 >Z-镇魂-广播剧+小说
-链接：https://pan.baidu.com/s/1H2gqydXPucu6A1hqvCnDNw
+链接：https://pan.baidu.com/s/1ZI4ucUAYgbz7Ko2s2t865Q
 备用：https://pan.baidu.com/s/1R4AFYgZfKYRXXTKvbM8dwQ
  
 >Z-镇魂街.广播剧
-链接：https://pan.baidu.com/s/1UZ879F4SEfg5fDOmfZheYw
+链接：https://pan.baidu.com/s/1CnGlfNVbgw-3Ha4-FadPNg
 提取码：9525 
  
 >Z-执念为秦.广播剧（现代纯爱）
@@ -48,41 +46,41 @@
 提取码：9525 
  
 >Z-纸飞机.广播剧
-链接：https://pan.baidu.com/s/1qMawLSEbmC96eOLv8gwmUg
+链接：https://pan.baidu.com/s/1-U3jA1ynv8h9pnIP1bQNtw
 提取码：9525 
  
 >Z-职业替身.广播剧+小说
-链接：https://pan.baidu.com/s/1LKWZzCi78Pjdl6hT6Cjaow
- 
+链接：https://pan.baidu.com/s/14fOEuA9FBeSbNMkKrs_uAA
+
 >Z-逐浪.广播剧（商配）
 >>>>正式网盘群更新，请加群获取
  
 >Z-追尾.广播剧（袁铭喆x马正阳）
-链接：https://pan.baidu.com/s/1SxR7st3XWeR68l6wSH9Wrw
- 
+链接：https://pan.baidu.com/s/1o_ui0on0QN4Pvy8w1-ZZ4w
+
 >Z-子夜鸮.广播剧+小说
-链接：https://pan.baidu.com/s/1kdOtg69uCBG8JFOl0jzhGw
+链接：https://pan.baidu.com/s/1Z3zsz36kYhfUJXraYMOX4g
 提取码：9525 
  
 >Z-子弹呼啸而过的岁月.广播剧
-链接：https://pan.baidu.com/s/1gOdsMiWXS5F7kAoboPfSrg
- 
+链接：https://pan.baidu.com/s/1jjcWhB2N0b9ITn5l2GYHbQ
+
 >Z-总裁酷帅狂霸拽.广播剧
-链接：https://pan.baidu.com/s/1yZtCC2dk0WamWiOsuoGn1Q
- 
+链接：https://pan.baidu.com/s/1mMioOAAMbat48sY6onZKBA
+
 >Z-走狗.广播剧
-链接：https://pan.baidu.com/s/1ap2rtsZouHP6Vd4ycMc6Tw
- 
+链接：https://pan.baidu.com/s/1vZaY2iLKe1EDh0YLOwCDAg
+
 >Z-最爱你的那十年.广播剧+漫画
-链接：https://pan.baidu.com/s/1>G-NhgIhoqHX036iUwPNwmw
+链接：https://pan.baidu.com/s/10ytuzBdXUSuK7SOtXeLocQ
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >Z-醉死当涂.广播剧
-链接：https://pan.baidu.com/s/1SDaY8m6Dh0ncKWRYAWDQ0A
+链接：https://pan.baidu.com/s/1Yh16WqTyZiiK2tCPPfSBBA
 提取码：9525 
  
 >Z-昨日如死.广播剧
-链接：https://pan.baidu.com/s/18hfUB9>W-1IpZLORrQwh7Yg
+链接：https://pan.baidu.com/s/1-4uiQU7W34hB6efTe-5hDg
 备用：https://pan.baidu.com/s/1y5PfozJ3vgubMolM5ASLMg
 提取码：9525
 

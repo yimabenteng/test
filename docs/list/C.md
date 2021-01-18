@@ -64,7 +64,7 @@
 链接：https://pan.baidu.com/s/18VB53HrvdiJ2Vnfij5GYvQ
  
 >C-初三的六一儿童节.广播剧+小说
-链接：https://pan.baidu.com/s/1eiOigcf4VLOsH68s2HXeCA
+链接：https://pan.baidu.com/s/1c992imepslXA2ANzDE33sg
  
 >C-穿到明朝考科举.广播剧
 链接：https://pan.baidu.com/s/1_QY2W6TwC0OHeKi8NP7PhQ
@@ -85,5 +85,5 @@
 链接：https://pan.baidu.com/s/1AFJXQTwa8q18H1c4CHxFhQ
  
 >C-曾经沧海（续续点灯xSK）全一期
-链接：https://pan.baidu.com/s/1sMwm8XXG8K0TL7j1gC1zTA
+链接：https://pan.baidu.com/s/1F32vRfC7aMOTnqPxJmlCJQ
 

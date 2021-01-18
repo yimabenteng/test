@@ -32,8 +32,8 @@
 链接：https://pan.baidu.com/s/15ER7MEa46v7-8>M-ojtfrkQ
  
 >N-男男纪事.广播剧
->>网盘群更新，请加群获取
- 
+链接：https://pan.baidu.com/s/1PUzJM5O3rvz_GBfUniuciw
+
 >N-你好，我想和你谈场恋爱.广播剧.全一期
 链接：https://pan.baidu.com/s/1pxbZpTJacnzNfCaoIEgccw
 提取码：9525
@@ -56,7 +56,7 @@
 链接：https://pan.baidu.com/s/1qlohfPadDPA2nHIqE0UNcg
  
 >N-娘.娘.腔.广播剧
-链接：https://pan.baidu.com/s/1vOcY9zuMhGBCAOfMRldlSg
+链接：https://pan.baidu.com/s/18FX210SONMBKqY_yK5unVg
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >N-女巫请睁眼.广播剧
@@ -67,10 +67,10 @@
 提取码：9525 
  
 >N-你喜欢的样子我都有
-链接：https://pan.baidu.com/s/1nh6vzs9QKnpu7yjVq_pxag
- 
+链接：https://pan.baidu.com/s/1W-FEjGISw0yqXUD4AoarlA
+
 >N-你怎么舍得让我的爱流向海.广播剧(十六夜&林予曦&HolyNight）
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1h5Ok2i5Wh3vOo-8fKPntAA
  
 
 

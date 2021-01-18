@@ -24,30 +24,33 @@
 提取码：9525
  
 >M-猫吃鱼（言诀x清酒酒吖）全一期
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1EALHjZa0G0tVG8wYBFH4nw
  
 >M-貌合神离.广播剧
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1-xZwCexsLXjcX6KgkesTAg
  
 >M-猫腻.广播剧
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1vwYxAv5HLW-2Vp_kNaSb9g
  
 >M-每天都梦到死对头在撩我.广播剧
-链接：https://pan.baidu.com/s/1NeAkyRea434Szl9WeUJeAQ
+链接：https://pan.baidu.com/s/10NYFiQwxaKl2k4tvSDcJxQ
 提取码：9525 
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >M-免费的.广播剧
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1v06_uRxToadgRvG3AQPe1w
  
 >M-苗疆蛊事.广播剧
 链接：https://pan.baidu.com/s/1CULNMAzD3ayLICx0aat12Q
+
+>M-明人不说暗恋.多人有声剧（涅槃&顾辰）
+链接：https://pan.baidu.com/s/1IXSnZDNqzsEfLJZP1iaxCw
  
 >M-明日星程.广播剧
 链接：https://pan.baidu.com/s/1tbzWpKKsESbnxnXN1kzjKg
 提取码：9525 
 链接2：https://pan.baidu.com/s/1jKKq3F8yVld21p4-0S3Zug
- 
+
 >M-末段爱情.广播剧（慢播）
 >>>>正式网盘群更新，请加群获取
  

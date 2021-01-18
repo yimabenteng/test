@@ -24,16 +24,16 @@
 链接：https://pan.baidu.com/s/19DJF7bRksBLSTjJxJvCaNg
  
 >H-寒武再临.广播剧
->>网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1Z8Rl8G55yUf0VHjMftRDRg
  
 >H-何生枷锁.广播剧
->>网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1A8O8vvHWqvlINWDqhZvkRA
  
 >H-合约夫夫.广播剧
 链接：https://pan.baidu.com/s/1MvdpYkpZMxTE2tjTXOV_Wg
  
 >H-合同制奴才.广播剧（江笙&小苒）
-链接：https://pan.baidu.com/s/1ZQk_x6lULGqGvA9Fcpp0ag
+链接：https://pan.baidu.com/s/1jwkqPgposf8ehpamf6NH3g
  
 >H-胡辣汤.广播剧（蓝调&水无涯）
 链接：https://pan.baidu.com/s/1aMBwA43UwDxEutfswPPL0Q
@@ -48,7 +48,7 @@
 链接：https://pan.baidu.com/s/1tbRnHk6jzABuKtbdB2jPTA
  
 >H-黄金台.广播剧
->>网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1yb872HhIUXRI2g3gbOIx_Q
  
 >H-化龙记.广播剧
 链接：https://pan.baidu.com/s/1xv60ByCxqY2mLb5bLI-c2Q
@@ -57,7 +57,7 @@
 链接：https://pan.baidu.com/s/1J8k92VFF0ST_Z4qAQmLKFw
  
 >H-还债.广播剧
-链接：https://pan.baidu.com/s/17vIsbW869Z1UsSUstr5osQ
+链接：https://pan.baidu.com/s/1IS4pjG_B_J4GwDo08OUYEg
  
 >H-幻想农场.广播剧（全三季）
 链接：https://pan.baidu.com/s/1HXVq8rs0Kv_7I4SQxecBiw

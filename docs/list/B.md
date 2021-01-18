@@ -25,10 +25,10 @@
 链接：https://pan.baidu.com/s/1jpdmbTLMZYZS0VOvHb2SvA
  
 >B-百足宠物诊所.广播剧
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1IUUX9sAFfv3Frbp0PdH2_Q
  
 >B-伴郎.广播剧（向以辰&正经太郎）
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1FCatBfCeMt7H8k2vMoUWYw
  
 >B-暴君与向日葵.广播剧
 链接：https://pan.baidu.com/s/1LNFASUm95Z8UaQGCDi43XQ
@@ -49,7 +49,7 @@
 链接：https://pan.baidu.com/s/1fIC1fNBftWtxC1P4zI5qMg
  
 >B-被水溺死的（家康x十六）【完结】
-链接：https://pan.baidu.com/s/1jJyUciLZEeEryHHgnZ_s1A
+链接：https://pan.baidu.com/s/1mM3Ndx2D-yWk6fSUz9bUdg
 提取码：9525 
  
 >B-鬓边不是海棠红.广播剧（魏超x杨天翔）
@@ -59,7 +59,7 @@
 链接：https://pan.baidu.com/s/1YoVDmzluxQuN2_1lEI032Q
  
 >B-彼得潘与辛德瑞拉.广播剧
-链接：https://pan.baidu.com/s/1_wzB03HvqM8JspGsiEdnGw
+链接：https://pan.baidu.com/s/1iwLmn_tJQOKfQL1U3rKjrA
 提取码：9525 
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
@@ -94,10 +94,11 @@
 链接：https://pan.baidu.com/s/1kvsByJiRlc5RYv374KXGeg
  
 >B-不死者.广播剧+小说
-链接：https://pan.baidu.com/s/1SShSAmqw8g4DEwW3d6g8aw
+链接：https://pan.baidu.com/s/1TJ9pn1p69DKa_Z-fXtnI-w
 提取码：9525 
 >>备用链接2：https://pan.baidu.com/s/1zOkKZd4T-Tvu2KOx7gHW8w
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >B-不要在垃圾桶里捡男朋友.广播剧+小说
 链接：https://pan.baidu.com/s/1r4fycxBe-5MbjFM1CfdS9Q
+

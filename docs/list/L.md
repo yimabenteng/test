@@ -20,7 +20,7 @@
 ------
 
 >L-辣J室友总撩我.广播剧.全五期（完结）
->>网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1BtSCgflPpgmKrYrH-rHkCg
  
 >L-篮球队长非要跟我谈恋爱（布鲁德&泽小西）全一期
 链接：https://pan.baidu.com/s/1o4e7vBfnkB0RXPpskxwFQA
@@ -29,14 +29,14 @@
 链接：https://pan.baidu.com/s/1j91SfOxNo921NQO8vSuRfw
  
 >L-老师，我喜欢你.广播剧（毁音绅士&李白）全一期
-链接：https://pan.baidu.com/s/1wuEQrtL3A3oa>D-dSkA_tsg
+链接：https://pan.baidu.com/s/1sURfUvIWZxt8ZtM3mwlnzw
  
 >L-LASER出道日.虚拟偶像团综.广播剧
 链接：https://pan.baidu.com/s/1Nn5kt0TCkshpQuggaT54QQ
 提取码：9525
  
 >L-离婚前后.广播剧
-链接：https://pan.baidu.com/s/1>K-XTQj-LGKg5MUXCCef9vA
+链接：https://pan.baidu.com/s/1FIJBIzSDowtIihEVGcMbVA
  
 >L-离婚之后.广播剧 
 链接：https://pan.baidu.com/s/1zqLgZU_F9HeS41giSoAPOQ
@@ -48,7 +48,7 @@
 链接：https://pan.baidu.com/s/1kxidwIWO9fXJ9rsHdtWCNQ
  
 >L-恋爱的H特训班.广播剧
-链接：https://pan.baidu.com/s/1jx9Qbs2WkYkAxJoFXWJQ0w
+链接：https://pan.baidu.com/s/1lL36j32EQsUHFWclP11QoQ
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >L-恋爱的贡多拉.广播剧
@@ -56,14 +56,14 @@
 提取码：9525 
  
 >L-睑上痣.广播剧（古月三刀X超级柴政）
-链接：https://pan.baidu.com/s/19>D-UC7MVwfuMWyjMfVvKYA
+链接：https://pan.baidu.com/s/1V50ouBMypxyxYq5-X9UAyg
  
 >L-两世陈情集.广播剧（魔道同人）
 链接：https://pan.baidu.com/s/1NHGkt7PxIK4uZilMgcGdvg
 提取码：9525
  
 >L-两攻相遇必有一受.广播剧
->>网盘群更新，请加群获取
+链接https://pan.baidu.com/s/1kQ7m39VtzmSSft8YgqOgEQ
  
 >L-临时保镖.广播剧
 链接：https://pan.baidu.com/s/1F4uGSYgDlacklrk5VXqSCg
@@ -84,7 +84,7 @@
 提取码：9525 
  
 >L-落不下.广播剧
->>>>正式>>网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1F7HQ9ZjtWIdp9flTkAjnwQ
  
 >L-落池.广播剧
 链接：https://pan.baidu.com/s/1hpARfciFjCdJ9aFMlp9SiQ

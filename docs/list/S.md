@@ -33,7 +33,7 @@
 链接：https://pan.baidu.com/s/17oFM42DrWenO5DLT9QrlBQ
  
 >S-撒野.广播剧
-链接：https://pan.baidu.com/s/1etAsgYPrQJcGqWP9-t4PdQ
+链接：https://pan.baidu.com/s/1yby8IFJEDRazH1ijN4j62g
 提取码：9525 
  
 >S-撒野.有声书（演播：史泽鲲&钱文青&朔小兔朔小兔）
@@ -63,7 +63,7 @@
 链接：https://pan.baidu.com/s/1p0xgBfIO16N6mqH6iQ>P-Zg
  
 >S-少汪几句.广播剧（正经太郎x君心不雨）慢播
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1p6Jx9qe6EZDlP1KDlpnLcw
  
 >S-山海镜花.广播剧
 链接：https://pan.baidu.com/s/1OzOHHKECVK6TavXti1d0sQ
@@ -90,7 +90,7 @@
 提取码：9525
  
 >S-蚀骨危情.广播剧
-链接：https://pan.baidu.com/s/12tMabeCDr4eeM2UpF8>E-4g
+链接：https://pan.baidu.com/s/1Cg4ebCj3pKCKnCNBluIDMQ
 提取码：9525 
  
 >S-十万个L笑话.广播剧

@@ -20,109 +20,107 @@
 ------
 
 >Y-哑舍广播剧【七部打包】
-链接：https://pan.baidu.com/s/1nyzWVShzQrhn_3dm5ipWWw
- 
+链接：https://pan.baidu.com/s/1w3gbVNpB7OnskSYcunLX-A
+
 >Y-阳关三叠·杀阵.广播剧（林放&格林） 全一期
-链接：https://pan.baidu.com/s/14mJt89Eps8cfMKTxFr6UHA
- 
+链接：https://pan.baidu.com/s/1TjN83S16_kVZewmY_EfRBQ
+
 >Y-养父.广播剧
-链接：https://pan.baidu.com/s/1lyKHJZh96yRujKcOUj2-xg
+链接：https://pan.baidu.com/s/1-eCtHcV2VvXenATYmcHqIA
 提取码：9525 
  
 >Y-杨戬传.广播剧
 >>>>正式网盘群更新，请加群获取
  
 >Y-夜-色-深-处.广播剧
-链接：https://pan.baidu.com/s/1FnfY67Q1hbfPET71ddt8fQ
+链接：https://pan.baidu.com/s/1kME7GviA1UqTbt1XoE8E4A
 提取码：9525 
  
 >Y-叶总监和林先生.广播剧
-链接：https://pan.baidu.com/s/1NicsLVfqCs2wSeXctPgxvw
- 
+链接：https://pan.baidu.com/s/1BmXOAk9VEyni12UrAh10Iw
+
 >Y-一拜天地.广播剧
-链接：https://pan.baidu.com/s/16PaLkSMTAfJcgO7SEaW_DQ
+链接：https://pan.baidu.com/s/1gSNoYygpfvmLlczaioQrkQ
 提取码：9525 
  
 >Y-一代灵后.广播剧
-链接：https://pan.baidu.com/s/1HH0jFLE4BUsLw_QmKDy_xg
+链接：https://pan.baidu.com/s/1bqxGxgxsMPQ3tIprQGbcTQ
 提取码：9525
  
 >Y-一朵菊花压海棠.广播剧（戏骨&江白）
 >>>>正式网盘群更新，请加群获取
  
 >Y-一个钢镚儿.广播剧+小说
-链接：https://pan.baidu.com/s/1dtE_vZGBv_BI5yckY2bp7Q
-备用：https://pan.baidu.com/s/1f1sCd0lSGCfDw77SubC5JA
+链接：https://pan.baidu.com/s/1wB3YwRdPSOBUEVjJ5GencA
 提取码：9525 
  
 >Y-一品千金.广播剧
-链接：https://pan.baidu.com/s/1veC9ts5bSXt9OsDKN5ffDA
-提取码：9525
+链接：https://pan.baidu.com/s/1sri1AvCqcSjLTZjYb_7tMA
  
 >Y-一人之下.广播剧
-链接：https://pan.baidu.com/s/1xJVJ1KOAXNP2a2r52F8F1A
+链接：https://pan.baidu.com/s/1-_uGhLQ6kjmsslSHy7IHpA
 提取码：9525 
  
 >Y-一世为臣.广播剧
-链接：https://pan.baidu.com/s/1xHHIRGJg4F32hcFtlBg1tA
+链接：https://pan.baidu.com/s/1srI5KsRCyhl4kYalLvKHQw
 提取码：9525 
  
 >Y-一受封疆.广播剧
-链接：https://pan.baidu.com/s/1sjg0DUtUKkTv1eXHM1_3sg
+链接：https://pan.baidu.com/s/1MGDSUspGFpQ96_TLZ0wSSA
 提取码：9525
  
 >Y-一醉经年.广播剧+小说
-链接：https://pan.baidu.com/s/1LD8Ip8Si7ixfrNOtXkZe_Q
+链接：https://pan.baidu.com/s/1xuSwkZMj_dkz5Xw3cVk2-w
 提取码：9525
  
 >Y-异墓录.广播剧
-链接：https://pan.baidu.com/s/1QV6UUYN83CEBzZW76RejGg
+链接：https://pan.baidu.com/s/1iYKk3vJXMt1rlT3uWvLysg
 提取码：9525
  
 >Y-音乐家们的手指.广播剧
-链接：https://pan.baidu.com/s/1UmIDykMqQGyfsvrsFYpRIQ
+链接：https://pan.baidu.com/s/1HNLKkECfxfQzJsla26FMBA
 提取码：9525
  
 >Y-隐衷.广播剧+小.说
-链接：https://pan.baidu.com/s/1i-UOHwK8tpIbIyv9SaOJBg
- 
+链接：https://pan.baidu.com/s/1FoVYjwOc5iwB71VQl6fCTQ
+
 >Y-营-销-号说你喜欢我.广播剧
 链接：https://pan.baidu.com/s/1R2zQ4sO3Ba8V3gCzQrLUpQ
  
 >Y-影帝.广播剧
-链接：https://pan.baidu.com/s/1Ta9mHnBcteuYEqD8wNiNYQ
+链接：https://pan.baidu.com/s/1gIYnIhPu-fatv58q6cNZRA
 提取码：9525
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >Y-有匪.广播剧
-链接：https://pan.baidu.com/s/1M0qzhP_WA-_tt5XZZeejuw
+链接：https://pan.baidu.com/s/1jZbXkk7g8H-4dxlPX6ZX5A
 提取码：9525 
  
 >Y-游戏加载中.广播剧
-链接：https://pan.baidu.com/s/1x31D_dMFyixn1U_8nP78Pw
+链接：https://pan.baidu.com/s/1fJ0MmYmjcPN7OM4Sg7eLHw
 提取码：9525 
  
 >Y-有我在.广播剧（2020 X杰生贺剧）全一期
-链接：https://pan.baidu.com/s/1_afjOncwEnrQroPQmyPS7Q
+链接：https://pan.baidu.com/s/14qwoA8crQEV6tJuqivLXVA
 提取码：9525
  
 >Y-有种你再撞一下.广播剧
-链接：https://pan.baidu.com/s/1aUfGMZGbCqocz_ujtYf4ZA
- 
+链接：https://pan.baidu.com/s/12A1hJqkrlJKg7gUwmQid7Q
+
 >Y-玉楼春.广播剧.全三期
-链接：https://pan.baidu.com/s/1cCv1F8RrVxK9ftqUXmHVqQ
+链接：https://pan.baidu.com/s/18uE7Jz2TsscjEdaZD2fjHw
 提取码：9525
  
 >Y-遇魔.广播剧+小说
-链接：https://pan.baidu.com/s/1w85FJ20vbpmC87G9I449Yw
+链接：https://pan.baidu.com/s/1PXgVKJQkrB2d_WF5D2zEOw
 提取码：9525
  
 >Y-遇上一个假霸总.广播剧
-链接：https://pan.baidu.com/s/1hNvOfuwqhh63cD79XT7R6A
+链接：https://pan.baidu.com/s/1qDUZFUkYdYspzVGRAIM8DQ
 提取码：9525
  
 >Y-袁先生总是不开心.广播剧
-链接：https://pan.baidu.com/s/1h6IuM427Fa5HjDKr1oCRlg
+链接：https://pan.baidu.com/s/1WRsgf-uFmnvq064GKDKIjg
 提取码：9525 
  
 

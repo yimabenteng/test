@@ -52,7 +52,7 @@
 网盘群更新，请加群获取
  
 >J-将军令.广播剧
-网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1DQss0X4XYUfa8dB5KXA_fw
  
 >J-江宁探-案录.广播剧
 链接：https://pan.baidu.com/s/1QzHJTNzB2rVG7O_nKITTnQ
@@ -62,7 +62,7 @@
 网盘群更新，请加群获取
  
 >J-金牌助理.广播剧
-网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1WLltaPJ0Ekz-LdoEAWdU0g
  
 >J-解药.广播剧+有声剧
 链接：https://pan.baidu.com/s/139W9JHbKSOT3E_-PxJtpaA
@@ -80,7 +80,7 @@
 提取码：9525
  
 >J-就想黏着你.广播剧（暖渡×羽辰）.完结
-网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1D-OQaUIntpZEDNSp7w4sPA
  
 >J-绝对契合.广播剧
 链接：https://pan.baidu.com/s/1ukTGD3pWWd38h7fkzNGDNQ

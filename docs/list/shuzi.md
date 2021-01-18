@@ -20,11 +20,14 @@
 ------
 
 >188男团.广播剧+TXT
-链接：https://pan.baidu.com/s/19VGVFovy3w9MEuj3eHmpeg
+链接：https://pan.baidu.com/s/14xNv5fhmCgOTpjSSTVpDkQ
 提取码：9525  
 
 备注：该资源极其容易和谐，若和谐建议加网盘群获取
- 
+
+>AA-超短剧合集
+链接：https://pan.baidu.com/s/1WMn1CXxXVpW2JFY7m_2WIg
+
 >1930来的先生.全集
 链接：https://pan.baidu.com/s/1kyFPcWoxn--muzIf6AyPQg
  

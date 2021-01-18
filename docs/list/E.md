@@ -28,12 +28,12 @@
 链接：https://pan.baidu.com/s/12ws6bjbQ_ro8_8F14DmIHQ
  
 >E-二哈和他的白猫师尊.广播剧
-链接：https://pan.baidu.com/s/132KauC1pcohUxyG7fKcPkQ
+链接：https://pan.baidu.com/s/1e1x33CZBnFdhJog7DUua4A
 提取码：9525 
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 E二进制.广播剧
->>>>正式网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/16aaKbC4S3tYTRpAc8uuVPA
  
 >E-二零一三.广播剧
 链接：https://pan.baidu.com/s/1EjkGvHNZA8Zcr8xq9keW2Q

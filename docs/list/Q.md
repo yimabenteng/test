@@ -21,7 +21,10 @@
 
 >Q-七色·红（风允之x寻常）完结
 链接：https://pan.baidu.com/s/1>N-35v2j6vKDPmQhcl93eAg
- 
+
+>Q-妻为上.广播剧（续续点灯&枕边风）
+链接：https://pan.baidu.com/s/1-RgRKB3iaWDa8NuoLG0NPw
+
 >Q-将进酒.广播剧+小.说
 链接：https://pan.baidu.com/s/1aloSfhceuFMGlJqV1sCbmw
 提取码：9525 
@@ -66,7 +69,7 @@
 提取码：9525
  
 >Q-情敌.广播剧（冷水x叶玄澈）全一期
-链接：https://pan.baidu.com/s/18AfKD8pQeYgEJdfXRUnjbg
+链接：https://pan.baidu.com/s/1AbvJsPbRx2d1zPmm4Zqhqw
  
 >Q-庆-y-年.广播剧+小说
 链接：https://pan.baidu.com/s/1SgB-CdcurizStQ369KEEWQ
@@ -76,7 +79,7 @@
 链接：https://pan.baidu.com/s/1SKf0Wdr>H-SsS3Dmok7v-fA
  
 >Q-穷途.广播剧
-链接：https://pan.baidu.com/s/1DBbVkxasEvF1nZY39ItvXw
+链接：https://pan.baidu.com/s/1hH4yl0rvdf93XSkfA73anA
 提取码：9525 
  
 >Q-全球高考.广播剧+小说

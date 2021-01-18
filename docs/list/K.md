@@ -38,7 +38,7 @@
 >>网盘群更新，请加群获取
  
 >K-恐同者恋爱实录.广播剧
->>网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1cvDOkv5OOIBwUJ2yePiO1Q
 
 
 
