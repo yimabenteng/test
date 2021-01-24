@@ -58,10 +58,7 @@
 链接：https://pan.baidu.com/s/1Lpmr>C-VLk7p4MCxyFIU8Lw
  
 >M-魔道祖师.广播剧
-链接：https://pan.baidu.com/s/1oHg_K78SrWGKb1Y94w-mEQ
-提取码：9525 
- 
-链接：https://pan.baidu.com/s/1e_iMs16A4vDYlNMDBaP8Yw
+链接：https://pan.baidu.com/s/1TEdloMPYgoGDt7qHShkUIQ
  
 >M-莫名我就喜欢你.广播剧（阿尘er x 紫麟）全一期
 链接：https://pan.baidu.com/s/194MwdiAcl5owveKXd4gbVA
