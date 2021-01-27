@@ -32,7 +32,13 @@
  
 >J-岌岌可危.广播剧（獊貅x雨墨）
 链接：https://pan.baidu.com/s/1ThsvYRsXIwb1wV514b_fUQ
- 
+
+>J-缉凶西北荒.广播剧
+链接：https://pan.baidu.com/s/1BkvJtR2RttRS9LncLxUqQg
+
+>J-假面.广播剧
+链接：https://pan.baidu.com/s/1Y_GJhCP1oTV5xUM58qmA1A
+
 >J-家族联姻计划.广播剧
 链接：https://pan.baidu.com/s/1uhmhf7oJe8XRdkYogOaOKA
  
@@ -49,7 +55,7 @@
 提取码：9525
  
 >J-兼职无常后我红了.有声书（赵乾景演播）
-网盘群更新，请加群获取
+链接：https://pan.baidu.com/s/1bzm-oLlPrkuEUuhlKJLkIw
  
 >J-将军令.广播剧
 链接：https://pan.baidu.com/s/1DQss0X4XYUfa8dB5KXA_fw

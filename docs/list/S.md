@@ -68,15 +68,17 @@
 >S-山海镜花.广播剧
 链接：https://pan.baidu.com/s/1OzOHHKECVK6TavXti1d0sQ
 提取码：9525
- 
+
+>S-山河映桃花.广播剧
+链接：https://pan.baidu.com/s/16JTYrU4NlOax2c719GzlYg
+
 >S-上瘾-广播剧
 链接：https://pan.baidu.com/s/1tVQ5S5mQfkWsnI7lYLjWqQ
  
 >S-社交温度.广播剧
 链接：https://pan.baidu.com/s/13olrVwt>H-XZEjq1hSzl6Ow
 提取码：9525 
- 
- 
+
 >S-深度挚情.广播剧
 链接：https://pan.baidu.com/s/18Yhmoa9vQIDfDUQVnYmn9Q
 提取码：9525
@@ -88,6 +90,10 @@
 >S-盛宠巨星.广播剧
 链接：https://pan.baidu.com/s/104jT5eR191_duEeJ7C8gSA
 提取码：9525
+
+>S-胜者为王.广播剧
+链接：https://pan.baidu.com/s/1iME7AiiQ2zoce8XpwFDlFw
+
  
 >S-蚀骨危情.广播剧
 链接：https://pan.baidu.com/s/1Cg4ebCj3pKCKnCNBluIDMQ

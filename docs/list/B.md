@@ -22,7 +22,7 @@
 链接：https://pan.baidu.com/s/1eQ-pGbsl6ltajkyj2H143A
  
 >B-百妖谱.广播剧
-链接：https://pan.baidu.com/s/1jpdmbTLMZYZS0VOvHb2SvA
+链接：https://pan.baidu.com/s/104I8g_M3-ckPtjr7KdFHAg
  
 >B-百足宠物诊所.广播剧
 链接：https://pan.baidu.com/s/1IUUX9sAFfv3Frbp0PdH2_Q
@@ -35,7 +35,11 @@
  
 >B-暴脾气.现代校园DM广播剧（全一期）
 链接：https://pan.baidu.com/s/1l1hmIzsL6iYxkG2oGJAAgA
- 
+
+>B-背Fu阳光.广播剧
+链接：https://pan.baidu.com/s/1RP2w6dklJmkArn3TwsEMrA
+
+
 >B-北洋夜行记.广播剧
 链接：https://pan.baidu.com/s/1y1LbVqJnT4ETWts7yiThXw
  
@@ -59,7 +63,7 @@
 链接：https://pan.baidu.com/s/1YoVDmzluxQuN2_1lEI032Q
  
 >B-彼得潘与辛德瑞拉.广播剧
-链接：https://pan.baidu.com/s/1iwLmn_tJQOKfQL1U3rKjrA
+链接：https://pan.baidu.com/s/1v-g6avNf7xk4EniQn8OVWw
 提取码：9525 
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
@@ -94,9 +98,7 @@
 链接：https://pan.baidu.com/s/1kvsByJiRlc5RYv374KXGeg
  
 >B-不死者.广播剧+小说
-链接：https://pan.baidu.com/s/1TJ9pn1p69DKa_Z-fXtnI-w
-提取码：9525 
->>备用链接2：https://pan.baidu.com/s/1zOkKZd4T-Tvu2KOx7gHW8w
+链接：https://pan.baidu.com/s/1-G92b5xZUWRO4n8P6P7VpQ
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >B-不要在垃圾桶里捡男朋友.广播剧+小说

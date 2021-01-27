@@ -44,28 +44,30 @@
 提取码：9525
  
 >D-当年万里觅封侯.广播剧+小说
-链接：https://pan.baidu.com/s/1b5HVBs4huRZ4SrOFXdKcww
-提取码：9525 
+链接：https://pan.baidu.com/s/13QkBsTvenfSWsTNZ79BOXg
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >D-迪奥先生.广播剧
-链接：https://pan.baidu.com/s/1UnDv2Ug5_18Saax4HjRpEQ
-提取码：9525 
-链接2：https://pan.baidu.com/s/13ErzHifvLlXoh19-PSAfmA
-提取码：9525
+链接：https://pan.baidu.com/s/1B9csiYa-TL3DnPMAUuSKlQ
  
 >D-等你下课.广播剧（>>>>正式网盘群更新，请加群获取）
 链接：https://pan.baidu.com/s/15rTNWlLfkNWrIYSLvN8wpw
  
 >D-等待花开（擎苍x红日）全一期
 链接：https://pan.baidu.com/s/1HtiXyZep4pvczwfNSxMWTQ
- 
+
 >D-地尽头.现代纯爱广播剧（擎苍&超级柴政）
 链接：https://pan.baidu.com/s/1-7hvFIF2JpcHxns4_BhurA
 提取码：9525
- 
+
+>D-地下室.实录+番外
+链接：https://pan.baidu.com/s/1Jnt8ZwRSzXzWxbizLB5NgQ
+
+>D-帝王攻略.广播剧
+链接：https://pan.baidu.com/s/18g4ncO2AfIV7JzUD8P9ptg
+
 >D-电车里的日日夜夜.广播剧.全一期
-链接：https://pan.baidu.com/s/1nNgvpIoYYI-myvQG6EFcuw
+链接：https://pan.baidu.com/s/1NQ_2dOUDjr1Sl_f-e4KsEQ
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >D-电子竞技存在一见钟情吗.广播剧
@@ -91,6 +93,6 @@
 >>>>正式网盘群更新，请加群获取
  
 >D-夺梦.广播剧
-链接：https://pan.baidu.com/s/1NEumyo76FG8N3pCLcODWgg
-提取码：9525
+链接：https://pan.baidu.com/s/1NSxqo6KnAM4WBmAA1i555g
+
  

@@ -67,10 +67,10 @@
 链接：https://pan.baidu.com/s/1c992imepslXA2ANzDE33sg
  
 >C-穿到明朝考科举.广播剧
-链接：https://pan.baidu.com/s/1_QY2W6TwC0OHeKi8NP7PhQ
- 
+链接：https://pan.baidu.com/s/1FQpZX0Uw1KpCUPaNmlQ9Nw
+
 >C-穿堂惊掠琵琶声.广播剧+小说
-链接：https://pan.baidu.com/s/1IrB7xwKPWqMfLlvRM7X1vw
+链接：https://pan.baidu.com/s/1VEX1OhjCATtf_1I7JipyOg
  
 >C-唇枪.广播剧
 链接：https://pan.baidu.com/s/1dog5FIUElnjKNyGuY0USpQ

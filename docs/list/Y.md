@@ -89,7 +89,7 @@
 链接：https://pan.baidu.com/s/1FoVYjwOc5iwB71VQl6fCTQ
 
 >Y-营-销-号说你喜欢我.广播剧
-链接：https://pan.baidu.com/s/1R2zQ4sO3Ba8V3gCzQrLUpQ
+链接：https://pan.baidu.com/s/1c5sssX9kumMHp-RcPdKDBg
  
 >Y-影帝.广播剧
 链接：https://pan.baidu.com/s/1gIYnIhPu-fatv58q6cNZRA
@@ -110,6 +110,12 @@
  
 >Y-有种你再撞一下.广播剧
 链接：https://pan.baidu.com/s/12A1hJqkrlJKg7gUwmQid7Q
+
+>Y-娱乐圈是我的.广播剧
+链接：https://pan.baidu.com/s/1iymVMgl9_NgKpaXwCjwwFw
+
+>Y-原路看斜阳.广播剧
+链接：https://pan.baidu.com/s/1KpvFQ4yRW-cBfuplaUIzaQ
 
 >Y-玉楼春.广播剧.全三期
 链接：https://pan.baidu.com/s/18uE7Jz2TsscjEdaZD2fjHw

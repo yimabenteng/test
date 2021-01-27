@@ -24,7 +24,10 @@
  
 >L-篮球队长非要跟我谈恋爱（布鲁德&泽小西）全一期
 链接：https://pan.baidu.com/s/1o4e7vBfnkB0RXPpskxwFQA
- 
+
+>L-狼狗.广播剧
+链接https://pan.baidu.com/s/1CIID-Mk0_W-3NZVAmRuz-w
+
 >L-老婆孩子热炕头.广播剧+小说
 链接：https://pan.baidu.com/s/1j91SfOxNo921NQO8vSuRfw
  
@@ -48,7 +51,7 @@
 链接：https://pan.baidu.com/s/1kxidwIWO9fXJ9rsHdtWCNQ
  
 >L-恋爱的H特训班.广播剧
-链接：https://pan.baidu.com/s/1lL36j32EQsUHFWclP11QoQ
+链接：https://pan.baidu.com/s/1zUx-bMq2P0BXl0ng5izM1Q
 >>>备注：该资源极其容易和谐，若和谐建议加网盘群获取
  
 >L-恋爱的贡多拉.广播剧
