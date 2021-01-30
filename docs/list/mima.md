@@ -26,9 +26,9 @@
 
 (个别剧只在网盘群分享，手机、平板用户不建议自己解压。问题多，客服也解决不了。)
 
-自助获取密码1：http://pay.tupianmima.com/p.php?8tp=t4.14178a37b998.pg1
+自助获取密码1：http://pay.tupianmima.com/p.php?8tp=t3.13473a126b1998.pg1
 
-自助获取密码2：http://pay.tupianmima.com/p.php?8tp=s1.13473a116b998.pg1
+自助获取密码2：http://pay.tupianmima.com/p.php?8tp=t2.14178a39b1998.pg1
 
 >付款有问题联系客服Q:1901592956
 
