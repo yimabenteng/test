@@ -59,7 +59,10 @@
  
 >M-魔道祖师.广播剧
 链接：https://pan.baidu.com/s/1TEdloMPYgoGDt7qHShkUIQ
- 
+
+>M-魔道祖师.广播剧(日语版)
+>>>>网盘群更新，请加群获取，点击上方自助入群链接
+
 >M-莫名我就喜欢你.广播剧（阿尘er x 紫麟）全一期
 链接：https://pan.baidu.com/s/194MwdiAcl5owveKXd4gbVA
 提取码：9525

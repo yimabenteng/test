@@ -22,7 +22,10 @@
 
 >G-高级定制.广播剧
 链接：https://pan.baidu.com/s/1XNjW5Gpq1bpJv4_GsPEwIg
- 
+
+>G-高能二维码.广播剧
+>>>>网盘群更新，请加群获取，点击上方自助入群链接
+
 >G-歌剧魅影.有声剧
 链接：https://pan.baidu.com/s/1snVHXW9nSGjO56sYSgPfng
 提取码：9525
@@ -39,6 +42,12 @@
 
 >G-公园之夜.广播剧
 链接：https://pan.baidu.com/s/1ujwkF1mIKrBJ11mwIAi-XQ
+
+>G-攻略对象出了错（谷江山&锦鲤） 金刚圈原著
+>>>>网盘群更新，请加群获取，点击上方自助入群链接
+
+>G-攻略那个渣攻.广播剧
+>>>>网盘群更新，请加群获取，点击上方自助入群链接
 
 >G-攻心为上.有声剧
 链接：https://pan.baidu.com/s/1tDTv_9ZT68iZ6-MHccz1sA

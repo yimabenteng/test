@@ -21,7 +21,10 @@
 
 >L-辣J室友总撩我.广播剧.全五期（完结）
 链接：https://pan.baidu.com/s/1BtSCgflPpgmKrYrH-rHkCg
- 
+
+>L-蓝翅.广播剧.完结
+>>>>网盘群更新，请加群获取，点击上方自助入群链接
+
 >L-篮球队长非要跟我谈恋爱（布鲁德&泽小西）全一期
 链接：https://pan.baidu.com/s/1o4e7vBfnkB0RXPpskxwFQA
 
