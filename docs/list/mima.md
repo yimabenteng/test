@@ -14,9 +14,9 @@
 * 3、新增广播剧提前听
 
 
-自助进群1：http://pay.tupianmima.com/p.php?8tp=t4.14178a38b1998.pg1  
+自助进群：http://pay.tupianmima.com/ma.html  
 
-自助进群2：http://pay.tupianmima.com/p.php?8tp=t4.13473a118b1998.pg1
+
 
 
 >付款问题联系客服Q:1901592956
@@ -26,9 +26,9 @@
 
 (个别剧只在网盘群分享，手机、平板用户不建议自己解压。问题多，客服也解决不了。)
 
-自助获取密码1：http://pay.tupianmima.com/p.php?8tp=t3.13473a126b1998.pg1
+自助获取密码：http://pay.tupianmima.com/ma2.html
 
-自助获取密码2：http://pay.tupianmima.com/p.php?8tp=t2.14178a39b1998.pg1
+
 
 >付款有问题联系客服Q:1901592956
 
